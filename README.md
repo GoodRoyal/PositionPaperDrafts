@@ -1,1 +1,1 @@
-Position Paper Drafts and Miscellanea. All of these ideas are already in my provisionals. So, kiddos, the prior art angle is kinda bozo. And building around it is even more Bozo you will go broke. Why do that? Im not a Wolfram troll. Win win, some things open source, hacker rights, some applications not so.
+Position Paper Drafts and Miscellanea. All of these ideas are already in my provisionals. So, kiddos, the prior art angle is a curious choice.
